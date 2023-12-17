@@ -1,2 +1,2 @@
 # TAPSOBA Wendemi Cedric Tertius
-### Developper, Gamer, StartUpper freelance.
+### Developper, Gamer, StartUpper et freelance.
